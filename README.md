@@ -5,3 +5,4 @@ game over
 coming soon
 amazing
 or search
+control this
