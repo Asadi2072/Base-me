@@ -3,7 +3,7 @@ hello boys vb
 big migk xzc
 game over 6nh
 coming soon
-amazing
+amazing nmn
 or search
 control this
 change it
