@@ -7,7 +7,7 @@ amazing nmn
 or search
 control this
 change it
-marsi
+marsi o0o
 this protocol
 soskey
 soo luky
