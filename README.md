@@ -9,7 +9,7 @@ control this
 change it 4g5
 marsi o0o
 this protocol tt3
-soskey
+soskey 565
 soo luky
 Lose 15
 countino
