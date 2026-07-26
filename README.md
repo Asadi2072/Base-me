@@ -11,7 +11,7 @@ marsi o0o
 this protocol tt3
 soskey 565
 soo luky nbn
-Lose 15
+Lose 15 zcx
 countino
 forgot this
 linerra 
