@@ -7,7 +7,7 @@ amazing nmn
 or search 9nj
 control this 130
 change it 4g5
-marsi o0o
+marsi o0o ret
 this protocol tt3
 soskey 565
 soo luky nbn
