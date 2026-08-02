@@ -10,7 +10,7 @@ change it 4g5
 marsi o0o ret
 this protocol tt3
 soskey 565
-soo luky nbn
+soo luky nbn z09
 Lose 15 zcx bvb
 countino
 forgot this
