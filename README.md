@@ -3,7 +3,7 @@ hello boys vb
 big migk xzc
 game over 6nh
 coming soon 120
-amazing nmn
+amazing nmn kio
 or search 9nj
 control this 130
 change it 4g5
