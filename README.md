@@ -9,7 +9,7 @@ control this 130
 change it 4g5
 marsi o0o ret
 this protocol tt3
-soskey 565
+soskey 565 sad
 soo luky nbn z09
 Lose 15 zcx bvb
 countino 109
