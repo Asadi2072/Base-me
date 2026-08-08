@@ -1,6 +1,6 @@
 # Base-me
 hello boys vb
-big migk xzc
+big migk xzc fre
 game over 6nh
 coming soon 120
 amazing nmn kio
