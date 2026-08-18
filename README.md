@@ -6,7 +6,7 @@ coming soon 120
 amazing nmn kio
 or search 9nj o0h
 control this 130
-change it 4g5
+change it 4g5 o9z
 marsi o0o ret jui
 this protocol tt3
 soskey 565 sad
