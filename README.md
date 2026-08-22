@@ -3,7 +3,7 @@ hello boys vbb 697
 big migk xzc fre
 game over 6nh poi
 coming soon 120 gft
-amazing nmn kio
+amazing nmn kio nfd
 or search 9nj o0h
 control this 130
 change it 4g5 o9z
